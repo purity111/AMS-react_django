@@ -1,4 +1,4 @@
-[![attendance.png](https://i.postimg.cc/MZQTXRgn/attendance.png)](https://postimg.cc/9zcVn4m2)
+[![attendance.png](https://ibb.co/02FF11K)](https://postimg.cc/9zcVn4m2)
 
 # AMS
 
